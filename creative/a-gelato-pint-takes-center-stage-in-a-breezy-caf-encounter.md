@@ -1,8 +1,8 @@
-# AI Video Prompt for Food Product Reveals Using a Dolly Zoom Effect
+# AI Video Prompt for Food Product Reveals Using a Dolly zoom effect
 
 > **Source:** [https://videosprompt.org/creative/a-gelato-pint-takes-center-stage-in-a-breezy-caf-encounter](https://videosprompt.org/creative/a-gelato-pint-takes-center-stage-in-a-breezy-caf-encounter)
 
-**Concept:** AI Video Prompt for Food Product Reveals Using a Dolly Zoom Effect
+**Concept:** AI Video Prompt for Food Product Reveals Using a Dolly zoom effect
 
 **Categories:** Food
 

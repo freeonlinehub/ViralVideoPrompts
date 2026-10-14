@@ -1,8 +1,8 @@
-# MacOS-Style UI Deletion Video Prompt: transform skincare and Lifestyle Advertising
+# MacOS-Style UI Deletion Video Prompt: Transform skincare and lifestyle advertising
 
 > **Source:** [https://videosprompt.org/creative/a-lavender-body-cream-ad-turns-skin-concerns-into-a-playful](https://videosprompt.org/creative/a-lavender-body-cream-ad-turns-skin-concerns-into-a-playful)
 
-**Concept:** MacOS-Style UI Deletion Video Prompt: transform skincare and Lifestyle Advertising
+**Concept:** MacOS-Style UI Deletion Video Prompt: Transform skincare and lifestyle advertising
 
 **Categories:** Skincare
 

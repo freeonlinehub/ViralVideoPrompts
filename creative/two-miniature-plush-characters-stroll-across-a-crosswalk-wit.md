@@ -1,8 +1,8 @@
-# Miniature Plush Walk AI Video Prompt for Brand and Ecommerce Ads
+# Miniatur Plush Walk AI Video Prompt for Brand and Ecommerce Ads
 
 > **Source:** [https://videosprompt.org/creative/two-miniature-plush-characters-stroll-across-a-crosswalk-wit](https://videosprompt.org/creative/two-miniature-plush-characters-stroll-across-a-crosswalk-wit)
 
-**Concept:** Miniature Plush Walk AI Video Prompt for Brand and Ecommerce Ads
+**Concept:** Miniatur Plush Walk AI Video Prompt for Brand and Ecommerce Ads
 
 **Categories:** Miniature
 

@@ -1,8 +1,8 @@
-# Playful Food Game Wins: A Viral-Style Video Ad Concept Using Tic-Tac-Toe Grids
+# Playful Food Game Wins: A Viral‑Style Video Ad Concept Using Tic-Tac-Toe Grids
 
 > **Source:** [https://videosprompt.org/creative/a-burger-and-fries-tic-tac-toe-game-ends-with-a-tasty-combo](https://videosprompt.org/creative/a-burger-and-fries-tic-tac-toe-game-ends-with-a-tasty-combo)
 
-**Concept:** Playful Food Game Wins: A Viral-Style Video Ad Concept Using Tic-Tac-Toe Grids
+**Concept:** Playful Food Game Wins: A Viral‑Style Video Ad Concept Using Tic-Tac-Toe Grids
 
 **Categories:** Food
 

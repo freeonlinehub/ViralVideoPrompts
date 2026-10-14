@@ -1,10 +1,10 @@
-# Miniature Vending Machine Skincare Video Promotions for Ecommerce Brands
+# Miniatur Vending Machine Skincare Video Promotions for Ecommerce Brands
 
 > **Source:** [https://videosprompt.org/creative/a-pastel-pink-beauty-vending-machine-transforms-ingredients](https://videosprompt.org/creative/a-pastel-pink-beauty-vending-machine-transforms-ingredients)
 
-**Concept:** Miniature Vending Machine Skincare Video Promotions for Ecommerce Brands
+**Concept:** Miniatur Vending Machine Skincare Video Promotions for Ecommerce Brands
 
-**Categories:** Skincare, Beauty, Miniature
+**Categories:** Skincare, Beauty
 
 ---
 

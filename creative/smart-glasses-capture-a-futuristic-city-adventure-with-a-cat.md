@@ -1,8 +1,8 @@
-# futuristic Smart Glasses POV Video Concept for Tech and Urban Lifestyle Brands
+# Futuristic Smart Glasses POV Video Concept for Tech and Urban Lifestyle Brands
 
 > **Source:** [https://videosprompt.org/creative/smart-glasses-capture-a-futuristic-city-adventure-with-a-cat](https://videosprompt.org/creative/smart-glasses-capture-a-futuristic-city-adventure-with-a-cat)
 
-**Concept:** futuristic Smart Glasses POV Video Concept for Tech and Urban Lifestyle Brands
+**Concept:** Futuristic Smart Glasses POV Video Concept for Tech and Urban Lifestyle Brands
 
 **Categories:** Tech, Animal, Urban
 

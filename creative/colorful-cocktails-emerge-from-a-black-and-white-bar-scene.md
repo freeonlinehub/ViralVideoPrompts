@@ -1,8 +1,8 @@
-# Black-and-White to Color cocktail Reveal: A Viral-Style Ad Concept
+# Black-and-White to Color Cocktail Reveal: A Viral-Style Ad Concept
 
 > **Source:** [https://videosprompt.org/creative/colorful-cocktails-emerge-from-a-black-and-white-bar-scene](https://videosprompt.org/creative/colorful-cocktails-emerge-from-a-black-and-white-bar-scene)
 
-**Concept:** Black-and-White to Color cocktail Reveal: A Viral-Style Ad Concept
+**Concept:** Black-and-White to Color Cocktail Reveal: A Viral-Style Ad Concept
 
 **Categories:** Beverage
 

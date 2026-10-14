@@ -1,8 +1,8 @@
-# Luxurious Geodesic orb Reveal AI Video Prompt for Premium Product Marketing
+# Luxurious Geodesic Orb Reveal AI Video Prompt for Premium Product Marketing
 
 > **Source:** [https://videosprompt.org/creative/a-golden-glass-orb-transforms-into-a-spiraling-metallic-latt](https://videosprompt.org/creative/a-golden-glass-orb-transforms-into-a-spiraling-metallic-latt)
 
-**Concept:** Luxurious Geodesic orb Reveal AI Video Prompt for Premium Product Marketing
+**Concept:** Luxurious Geodesic Orb Reveal AI Video Prompt for Premium Product Marketing
 
 **Categories:** Luxury, Urban
 

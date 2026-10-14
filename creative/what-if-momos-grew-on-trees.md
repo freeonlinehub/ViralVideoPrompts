@@ -1,10 +1,10 @@
-# Urban hair product video ideas: Floating Jar Meets street fashion
+# Transform Food Into Fruit Trees: Magical Realism AI Video Prompt for Food Branding
 
-> **Source:** [https://videosprompt.org/creative/a-float-hair-conditioner-jar-becomes-an-urban-chic-produc](https://videosprompt.org/creative/a-float-hair-conditioner-jar-becomes-an-urban-chic-produc)
+> **Source:** [https://videosprompt.org/creative/what-if-momos-grew-on-trees](https://videosprompt.org/creative/what-if-momos-grew-on-trees)
 
-**Concept:** Urban hair product video ideas: Floating Jar Meets street fashion
+**Concept:** Transform Food Into Fruit Trees: Magical Realism AI Video Prompt for Food Branding
 
-**Categories:** Fashion, Urban
+**Categories:** Food, Whimsical
 
 ---
 
@@ -23,5 +23,5 @@ This AI video prompt originates from **[socialtoprompt.com](https://socialtoprom
 ## See also
 
 - Browse the [full directory](../README.md)
-- Read the original on [videosprompt.org](https://videosprompt.org/creative/a-float-hair-conditioner-jar-becomes-an-urban-chic-produc)
+- Read the original on [videosprompt.org](https://videosprompt.org/creative/what-if-momos-grew-on-trees)
 - Extract prompts from social videos: [socialtoprompt.com](https://socialtoprompt.com/)

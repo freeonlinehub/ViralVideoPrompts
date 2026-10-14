@@ -1,8 +1,8 @@
-# Fan Blade Masked Outfit Change Video Prompt for Children's Fashion Ads
+# Fan Blade Masked Outfit Change Video Prompt for children's fashion ads
 
 > **Source:** [https://videosprompt.org/creative/a-child-s-whimsical-outfit-changes-on-a-persian-rug-in-stop](https://videosprompt.org/creative/a-child-s-whimsical-outfit-changes-on-a-persian-rug-in-stop)
 
-**Concept:** Fan Blade Masked Outfit Change Video Prompt for Children's Fashion Ads
+**Concept:** Fan Blade Masked Outfit Change Video Prompt for children's fashion ads
 
 **Categories:** Whimsical, Fashion
 

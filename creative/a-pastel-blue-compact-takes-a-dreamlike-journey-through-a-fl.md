@@ -1,8 +1,8 @@
-# Pastel floating Product Commercial AI Video Prompt for Beauty and Tech
+# Pastel Floating Product Commercial AI Video Prompt for Beauty and Tech
 
 > **Source:** [https://videosprompt.org/creative/a-pastel-blue-compact-takes-a-dreamlike-journey-through-a-fl](https://videosprompt.org/creative/a-pastel-blue-compact-takes-a-dreamlike-journey-through-a-fl)
 
-**Concept:** Pastel floating Product Commercial AI Video Prompt for Beauty and Tech
+**Concept:** Pastel Floating Product Commercial AI Video Prompt for Beauty and Tech
 
 **Categories:** Makeup, Tech, Beauty, Whimsical
 

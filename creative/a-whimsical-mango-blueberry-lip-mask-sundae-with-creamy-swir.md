@@ -1,10 +1,10 @@
-# Playful Product Miniature World AI Video Prompt for Ecommerce
+# Playful Product Miniatur World AI Video Prompt for Ecommerce
 
 > **Source:** [https://videosprompt.org/creative/a-whimsical-mango-blueberry-lip-mask-sundae-with-creamy-swir](https://videosprompt.org/creative/a-whimsical-mango-blueberry-lip-mask-sundae-with-creamy-swir)
 
-**Concept:** Playful Product Miniature World
+**Concept:** Playful Product Miniatur World
 
-**Categories:** Skincare, Food, Beauty, Whimsical, Miniature
+**Categories:** Skincare, Food, Beauty, Whimsical
 
 ---
 

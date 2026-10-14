@@ -1,8 +1,8 @@
-# Whimsical Miniature Monsoon Rain Video Prompt Ideas for Ecommerce Ads
+# Whimsical Miniatur Monsoon Rain Video Prompt Ideas for Ecommerce Ads
 
 > **Source:** [https://videosprompt.org/creative/a-whimsical-miniature-monsoon-world-with-rainy-day-adventure](https://videosprompt.org/creative/a-whimsical-miniature-monsoon-world-with-rainy-day-adventure)
 
-**Concept:** Whimsical Miniature Monsoon Rain Video Prompt Ideas for Ecommerce Ads
+**Concept:** Whimsical Miniatur Monsoon Rain Video Prompt Ideas for Ecommerce Ads
 
 **Categories:** Whimsical, Miniature
 

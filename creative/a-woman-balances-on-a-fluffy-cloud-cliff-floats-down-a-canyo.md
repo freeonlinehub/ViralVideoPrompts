@@ -1,10 +1,10 @@
-# Ethereal Cloud Dreamscape Video Prompt for Serene Fashion Branding
+# Ethereal Cloud Cascade AI Video Prompt for Luxury Product Advertising
 
 > **Source:** [https://videosprompt.org/creative/a-woman-balances-on-a-fluffy-cloud-cliff-floats-down-a-canyo](https://videosprompt.org/creative/a-woman-balances-on-a-fluffy-cloud-cliff-floats-down-a-canyo)
 
-**Concept:** Ethereal Cloud Dreamscape Video Prompt for Serene Fashion Branding
+**Concept:** Ethereal Cloud Cascade AI Video Prompt for Luxury Product Advertising
 
-**Categories:** Whimsical, Fashion
+**Categories:** Luxury
 
 ---
 

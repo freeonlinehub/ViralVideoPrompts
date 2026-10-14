@@ -1,8 +1,8 @@
-# Whimsical Miniature Workers Perfume Ad Idea: AI Video Prompt for Fresh Fragrance
+# Whimsical Miniatur Workers Perfume Ad Idea: AI Video Prompt for Fresh Fragrance
 
 > **Source:** [https://videosprompt.org/creative/a-miniature-perfume-factory-in-a-lush-citrus-garden](https://videosprompt.org/creative/a-miniature-perfume-factory-in-a-lush-citrus-garden)
 
-**Concept:** Whimsical Miniature Workers Perfume Ad Idea: AI Video Prompt for Fresh Fragrance
+**Concept:** Whimsical Miniatur Workers Perfume Ad Idea: AI Video Prompt for Fresh Fragrance
 
 **Categories:** Perfume, Whimsical, Miniature
 

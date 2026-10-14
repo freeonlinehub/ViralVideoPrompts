@@ -1,8 +1,8 @@
-# Surreal Giant Hand Product Video prompts for Brand Ads
+# Surreal Giant Hand Product Video Prompts for Brand Ads
 
 > **Source:** [https://videosprompt.org/creative/a-giant-hand-lifts-a-tiny-woman-above-a-rainy-european-stree](https://videosprompt.org/creative/a-giant-hand-lifts-a-tiny-woman-above-a-rainy-european-stree)
 
-**Concept:** Surreal Giant Hand Product Video prompts for Brand Ads
+**Concept:** Surreal Giant Hand Product Video Prompts for Brand Ads
 
 **Categories:** Whimsical, Miniature
 

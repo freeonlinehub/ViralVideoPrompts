@@ -1,8 +1,8 @@
-# Cinematic Art Fashion parade AI Video Prompt for Creative Campaigns
+# Cinematic Art Fashion Parade AI Video Prompt for Creative Campaigns
 
 > **Source:** [https://videosprompt.org/creative/iconic-artworks-come-to-life-in-a-dreamlike-parisian-fashion](https://videosprompt.org/creative/iconic-artworks-come-to-life-in-a-dreamlike-parisian-fashion)
 
-**Concept:** Cinematic Art Fashion parade AI Video Prompt for Creative Campaigns
+**Concept:** Cinematic Art Fashion Parade AI Video Prompt for Creative Campaigns
 
 **Categories:** Whimsical, Fashion, Urban, Cinematic
 
